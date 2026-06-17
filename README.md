@@ -35,6 +35,6 @@ Front face 11 1/2" x 20" x 1/2"
 15. Selected 1/8" drill bit for ventilation holes and drilled.
 16. measured back and marked mounting hardware, Brad hole T nuts.
 17. Width of the back of the box is 10 5/8"+ exterior sides 23" 
-18. Drilled holes 
+18. Drilled holes for ventilation 
 
 
