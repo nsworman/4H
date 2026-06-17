@@ -22,6 +22,6 @@ Front face 11 1/2" x 20" x 1/2"
 2. Helper used bandsaw to rip dividers to width and cut 15° angle at bottom of face.
 3. Cut four chamber spacers to length and two internal supports.
 4. Before glue up layed out frame and marked off interior.
-5. Used dremel rotary to cut 
+5. Used dremel rotary to cut kerfs
 
 
