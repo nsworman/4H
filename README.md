@@ -27,5 +27,6 @@ Front face 11 1/2" x 20" x 1/2"
 7. Glued internal divider frame layer to back layer.
 8. Glued front face planks.
 9. Glued front face to box
+10. Helper used bandsaw to rip side 
 
 
