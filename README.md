@@ -10,4 +10,4 @@ Home Depot donated a cedar pallet. My helper dismantled the pallet. I selected 1
 
 # Rough Dimensions 
 
-Back panel 11 1/2" x 24"x
+Back panel 11 1/2" x 24" x 1/2
