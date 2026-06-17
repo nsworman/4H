@@ -14,4 +14,4 @@ Back panel 11 1/2" x 24" x 1/2"
 
 Center panel 11 1/2" × 22" ×1/2"
 
-Front face 11 1/2" x 20
+Front face 11 1/2" x 20" 
