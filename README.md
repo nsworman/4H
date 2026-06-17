@@ -8,4 +8,5 @@ Home Depot donated a cedar pallet. My helper dismantled the pallet. I selected 1
 
 (picture placeholder)
 
-# 
+# Rough Dimensions 
+
