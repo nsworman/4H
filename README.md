@@ -39,6 +39,7 @@ Front face 11 1/2" x 20" x 1/2"
 19. Glued two boards together along edge of the roof
 20. Helper used bandsaw to cut angle at the rear of the roof 
 21. Glued rear slat to the roof 
-22. Sanded all surfaces 
+22. Sanded all surfaces untill smooth.
+23. Applied finish
 
 
