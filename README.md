@@ -12,4 +12,4 @@ Home Depot donated a cedar pallet. My helper dismantled the pallet. I selected 1
 
 Back panel 11 1/2" x 24" x 1/2"
 
-center panel 11 1/2" × 22" ×
+center panel 11 1/2" × 22" ×1/2
