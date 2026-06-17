@@ -41,6 +41,7 @@ Front face 11 1/2" x 20" x 1/2"
 21. Glued rear slat to the roof 
 22. Sanded all surfaces untill smooth.
 23. Applied finish
-
+Project Complete 
+24. Helper built
 
 
