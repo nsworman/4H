@@ -33,6 +33,7 @@ Front face 11 1/2" x 20" x 1/2"
 13. Measured and marked 15°angle for roof and cut.
 14. Measured and marked 55°angle for bottom of box and cut.
 15. Selected 1/8" drill bit for ventilation holes and drilled.
-16. measured back and marked mounting hardware, Brad 
+16. measured back and marked mounting hardware, Brad hole T nuts.
+17. 
 
 
