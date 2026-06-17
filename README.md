@@ -24,3 +24,4 @@ Front face 11 1/2" x 20" x 1/2"
 4. Before glue up layed out frame and marked off interior.
 5. Used dremel
 
+
