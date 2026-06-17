@@ -5,4 +5,4 @@ I chose a bat box to make because, when I have a fire in my backyard my mom gets
 
 # Material Selection 
 
-Home Depot donated a cedar pallet. My helper dismantled the 
+Home Depot donated a cedar pallet. My helper dismantled the v
