@@ -30,6 +30,6 @@ Front face 11 1/2" x 20" x 1/2"
 10. Helper used bandsaw to rip side rails to width.
 11. Lightly sanded sides to prepare flat surface.
 12. Glued side rails.
-13. Measured and marked 15°angle
+13. Measured and marked 15°angle for roof and 
 
 
