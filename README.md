@@ -19,4 +19,4 @@ Front face 11 1/2" x 20" x 1/2"
 # Order of Operations 
 
 1. Measured and cut to right length 
-2. Helper used bandsaw to rip dividers to width and cut 15°angle
+2. Helper used bandsaw to rip dividers to width and cut 15° angle at bottom of face.
