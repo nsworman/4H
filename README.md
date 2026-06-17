@@ -29,6 +29,6 @@ Front face 11 1/2" x 20" x 1/2"
 9. Glued front face to box.
 10. Helper used bandsaw to rip side rails to width.
 11. Lightly sanded sides to prepare flat surface.
-12. 
+12. Glued 
 
 
