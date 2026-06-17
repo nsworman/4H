@@ -36,6 +36,6 @@ Front face 11 1/2" x 20" x 1/2"
 16. measured back and marked mounting hardware, Brad hole T nuts.
 17. Width of the back of the box is 10 5/8"+ exterior sides 23" 
 18. Centered and placed hardware.
-19. 
+19. Glued 
 
 
