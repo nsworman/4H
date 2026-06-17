@@ -28,6 +28,6 @@ Front face 11 1/2" x 20" x 1/2"
 8. Glued front face planks.
 9. Glued front face to box
 10. Helper used bandsaw to rip side rails to width 
-11. Lightly sanded sides 
+11. Lightly sanded sides to prepare 
 
 
