@@ -21,5 +21,6 @@ Front face 11 1/2" x 20" x 1/2"
 1. Measured and cut to right length 
 2. Helper used bandsaw to rip dividers to width and cut 15° angle at bottom of face.
 3. Cut four chamber spacers to length and two internal supports.
-4. Before glue up layed out frame and marked off interior 
+4. Before glue up layed out frame and marked off interior.
+5. 
 
