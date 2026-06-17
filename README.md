@@ -37,5 +37,6 @@ Front face 11 1/2" x 20" x 1/2"
 17. Width of the back of the box is 10 5/8"+ exterior sides 23" 
 18. Centered and placed hardware.
 19. Glued two boards together along edge of the roof
+20. Helper used bandsaw to cut angle 
 
 
