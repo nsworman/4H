@@ -25,23 +25,24 @@ Front face 11 1/2" x 20" x 1/2"
 5. Used dremel rotary to cut kerfs for bats to hang from.
 6. Glued internal frame to back.
 7. Glued internal divider frame layer to back layer.
-8. Glued front face planks.
-9. Glued front face to box.
-10. Helper used bandsaw to rip side rails to width.
-11. Lightly sanded sides to prepare flat surface.
-12. Glued side rails.
-13. Measured and marked 15°angle for roof and cut.
-14. Measured and marked 55°angle for bottom of box and cut.
-15. Selected 1/8" drill bit for ventilation holes and drilled.
-16. measured back and marked mounting hardware, Brad hole T nuts.
-17. Width of the back of the box is 10 5/8"+ exterior sides 23" 
-18. Centered and placed hardware.
-19. Glued two boards together along edge of the roof
-20. Helper used bandsaw to cut angle at the rear of the roof 
-21. Glued rear slat to the roof 
-22. Sanded all surfaces untill smooth.
-23. Applied finish
+8. 
+9. Glued front face planks.
+10. Glued front face to box.
+11. Helper used bandsaw to rip side rails to width.
+12. Lightly sanded sides to prepare flat surface.
+13. Glued side rails.
+14. Measured and marked 15°angle for roof and cut.
+15. Measured and marked 55°angle for bottom of box and cut.
+16. Selected 1/8" drill bit for ventilation holes and drilled.
+17. measured back and marked mounting hardware, Brad hole T nuts.
+18. Width of the back of the box is 10 5/8"+ exterior sides 23" 
+19. Centered and placed hardware.
+20. Glued two boards together along edge of the roof
+21. Helper used bandsaw to cut angle at the rear of the roof 
+22. Glued rear slat to the roof 
+23. Sanded all surfaces untill smooth.
+24. Applied finish
 Project Complete 
-24. Helper built presentation stand.
+25. Helper built presentation stand.
 
 
