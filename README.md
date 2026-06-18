@@ -29,7 +29,6 @@ Front face 11 1/2" x 20" x 1/2"
 [![](PXL_20260422_233606569.jpg)]()
 8. Glued front face planks.
 9. Glued front face to box.
-
 10. Lightly sanded sides to prepare flat surface.
 11. Glued side rails.
 12. Measured and marked 15°angle for roof and cut.
