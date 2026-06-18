@@ -47,7 +47,8 @@ Front face 11 1/2" x 20" x 1/2"
 23. Replaced hardware after finishing 
 [![](PXL_20260615_161742357.MP.jpg)]()
 
-Project Complete 
+Project Complete
+
 24. Helper built presentation stand.
 
 
