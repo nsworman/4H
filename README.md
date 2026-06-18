@@ -27,22 +27,21 @@ Front face 11 1/2" x 20" x 1/2"
 7. Glued internal divider frame layer to back layer.
 ![[PXL_20260419_203847326.jpg]]
 8. Glued front face planks.
-9. Glued front face to box.![[PXL_20260422_233606569.jpg]]
-10. Helper used bandsaw to rip side rails to width.
-11. Lightly sanded sides to prepare flat surface.
-12. Glued side rails.
-13. Measured and marked 15°angle for roof and cut.
-14. Measured and marked 55°angle for bottom of box and cut.
-15. Selected 1/8" drill bit for ventilation holes and drilled.
-16. measured back and marked mounting hardware, Brad hole T nuts.
-17. Width of the back of the box is 10 5/8"+ exterior sides 23" 
-18. Centered and placed hardware.
-19. Glued two boards together along edge of the roof
-20. Helper used bandsaw to cut angle at the rear of the roof 
-21. Glued rear slat to the roof 
-22. Sanded all surfaces untill smooth.
-23. Applied finish
+9. Glued front face to box.![[PXL_20260422_233606569.jpg]]10. Helper used bandsaw to rip side rails to width.
+10. Lightly sanded sides to prepare flat surface.
+11. Glued side rails.
+12. Measured and marked 15°angle for roof and cut.
+13. Measured and marked 55°angle for bottom of box and cut.
+14. Selected 1/8" drill bit for ventilation holes and drilled.
+15. measured back and marked mounting hardware, Brad hole T nuts.
+16. Width of the back of the box is 10 5/8"+ exterior sides 23" 
+17. Centered and placed hardware.
+18. Glued two boards together along edge of the roof
+19. Helper used bandsaw to cut angle at the rear of the roof 
+20. Glued rear slat to the roof 
+21. Sanded all surfaces untill smooth.
+22. Applied finish
 Project Complete 
-24. Helper built presentation stand.
+23. Helper built presentation stand.
 
 
