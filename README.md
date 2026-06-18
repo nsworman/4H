@@ -41,6 +41,7 @@ Front face 11 1/2" x 20" x 1/2"
 19. Helper used bandsaw to cut angle at the rear of the roof 
 20. Glued rear slat to the roof 
 21. Sanded all surfaces untill smooth.
+
 22. Applied finish
 Project Complete 
 23. Helper built presentation stand.
