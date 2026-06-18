@@ -6,7 +6,7 @@ I chose a bat box to make because, when I have a fire in my backyard my mom gets
 # Material Selection
 Home Depot donated a cedar pallet. My helper dismantled the pallet. I selected 12 boards for the project.
 
-
+![[PXL_20260412_173008166.jpg]]
 
 # Rough Dimensions 
 
