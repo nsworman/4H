@@ -43,7 +43,7 @@ Front face 11 1/2" x 20" x 1/2"
 21. Sanded all surfaces untill smooth.
 ![[PXL_20260517_184749461.jpg]]
 22. Applied finish
-
+![[PXL_20260612_170627474.MP.jpg]]
 Project Complete 
 1. Helper built presentation stand.
 
