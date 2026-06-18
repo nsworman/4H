@@ -25,7 +25,7 @@ Front face 11 1/2" x 20" x 1/2"
 5. Used dremel rotary to cut kerfs for bats to hang from.
 6. Glued internal frame to back.
 7. Glued internal divider frame layer to back layer.
-8. 
+8. ![[PXL_20260419_203847326.jpg]]
 9. Glued front face planks.
 10. Glued front face to box.
 11. Helper used bandsaw to rip side rails to width.
