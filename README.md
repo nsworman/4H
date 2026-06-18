@@ -41,12 +41,13 @@ Front face 11 1/2" x 20" x 1/2"
 19. Helper used bandsaw to cut angle at the rear of the roof 
 20. Glued rear slat to the roof 
 21. Sanded all surfaces untill smooth.
-![[PXL_20260517_184749461.jpg]]
+[![](PXL_20260517_184749461.jpg)]()
 22. Applied finish
-![[PXL_20260612_170627474.MP.jpg]]
-Replaced hardware after finishing 
-![[PXL_20260615_161742357.MP.jpg]]
+[![](PXL_20260612_170627474.MP.jpg)]()
+23. Replaced hardware after finishing 
+[![](PXL_20260615_161742357.MP.jpg)]()
+
 Project Complete 
-1. Helper built presentation stand.
+24. Helper built presentation stand.
 
 
